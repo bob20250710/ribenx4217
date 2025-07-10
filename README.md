@@ -16,4 +16,4 @@ SEO优化对于成人平台的流量和曝光至关重要。站长们通过分�
 
 社交化功能的引入也大大提高了平台的互动性。用户不仅可以观看视频，还可以在评论区与其他观众交流、分享观看心得。通过增加点赞、评论和分享功能，平台实现了社交化的目标，进一步提升了用户的参与感。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bob20250710/ribenx4217 ）</span>
